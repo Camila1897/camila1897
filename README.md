@@ -1,9 +1,9 @@
-# A @CAMILA RODRIGUEZ LESMES.
+#  @CAMILA RODRIGUEZ LESMES.+1.
 
 
 .🧠 preparada para enfrentar cualquier reto.
 
-## A 🚀 ACERCA DE MI:
+##  🚀 ACERCA DE MI:
 
 .🇪🇸 colombiana viviendo en España.
 
@@ -12,7 +12,7 @@
 
 .💞 aficiones: deporte ,me gusta practicar deporte , me hace sentir viva.
 
-### A 📫 Cómo comunicarse conmigo:
+###  📫 Cómo comunicarse conmigo:
 
 .corrreo electronico: camila1897@gmail.com.
 

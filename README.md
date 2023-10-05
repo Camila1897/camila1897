@@ -3,7 +3,7 @@
 
 .🧠 preparada para enfrentar cualquier reto.
 
-🚀 ACERCA DE MI:
+##🚀 ACERCA DE MI:
 
 .🇪🇸 colombiana viviendo en España.
 
@@ -12,7 +12,7 @@
 
 .💞 aficiones: deporte ,me gusta practicar deporte , me hace sentir viva.
 
-📫 Cómo comunicarse conmigo:
+###📫 Cómo comunicarse conmigo:
 
 .corrreo electronico: camila1897@gmail.com.
 

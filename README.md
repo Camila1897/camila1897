@@ -4,4 +4,5 @@ CAMILA RODRIGUEZ LESMES
 🚀 ACERCA DE MI:
 
 👩‍🎓 de bootcamp factoria f5 
-💞 aficione : deporte ,me gusta practicar deporte , me hace sentir viva.
+
+💞 aficiones: deporte ,me gusta practicar deporte , me hace sentir viva.

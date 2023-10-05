@@ -1,11 +1,11 @@
-#  @CAMILA RODRIGUEZ LESMES. :+1:
+#  @CAMILA RODRIGUEZ LESMES. .👍
     
 
-.🧠 preparada para enfrentar cualquier reto.
+.💯 preparada para enfrentar cualquier reto.
 
 ##  🚀 ACERCA DE MI:
 
-.🇪🇸 colombiana viviendo en España.
+.🇨🇴.🇪🇸 colombiana viviendo en España.
 
 
 .👩‍🎓 de bootcamp factoria f5. 
@@ -16,4 +16,4 @@
 
 .corrreo electronico: camila1897@gmail.com.
 
-.instagram: camila18r. :+9:
+.instagram: camila18r. 

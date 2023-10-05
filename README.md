@@ -1,5 +1,5 @@
-#  @CAMILA RODRIGUEZ LESMES.
-   :+1: 
+#  @CAMILA RODRIGUEZ LESMES. :+1:
+    
 
 .🧠 preparada para enfrentar cualquier reto.
 
@@ -16,4 +16,4 @@
 
 .corrreo electronico: camila1897@gmail.com.
 
-.instagram: camila18r.
+.instagram: camila18r. :+9:

@@ -1,7 +1,7 @@
 CAMILA RODRIGUEZ LESMES
-preparada para enfrentar cualquier reto
+🧠 preparada para enfrentar cualquier reto.
 
-ACERCA DE MI 
+🚀 ACERCA DE MI:
 
-estudiate de bootcamp factoria f5 
-
+👩‍🎓 de bootcamp factoria f5 
+💞 aficione : deporte ,me gusta practicar deporte , me hace sentir viva.

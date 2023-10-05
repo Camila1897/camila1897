@@ -1,4 +1,4 @@
-CAMILA RODRIGUEZ LESMES
+CAMILA RODRIGUEZ LESMES.
 🧠 preparada para enfrentar cualquier reto.
 
 🚀 ACERCA DE MI:

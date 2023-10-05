@@ -1,15 +1,16 @@
 CAMILA RODRIGUEZ LESMES.
 
-🧠 preparada para enfrentar cualquier reto.
+
+.🧠 preparada para enfrentar cualquier reto.
 
 🚀 ACERCA DE MI:
 
-🇪🇸 colombiana viviendo en España.
+.🇪🇸 colombiana viviendo en España.
 
 
-👩‍🎓 de bootcamp factoria f5. 
+.👩‍🎓 de bootcamp factoria f5. 
 
-💞 aficiones: deporte ,me gusta practicar deporte , me hace sentir viva.
+.💞 aficiones: deporte ,me gusta practicar deporte , me hace sentir viva.
 
 📫 Cómo comunicarse conmigo:
 
